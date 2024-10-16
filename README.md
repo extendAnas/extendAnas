@@ -5,4 +5,21 @@ You can click the Preview link to take a look at your changes.
 --->
 
 
-![banneryoutube1337leetProgram](https://github.com/user-attachments/assets/eacc5dff-d21b-421b-b3d7-c32a17f4beb1)
+![](https://komarev.com/ghpvc/?username=MercilesslyAngelic&color=ffbfd3&style=for-the-badge&label=_੯•﹅_++++&=true)
+<p align="center">
+<img src="https://file.garden/Zlo7whFY2AfQROME/492e39a3-80f7-44ae-b6f9-36790401b452_095a8711-326b-48fe-adfd-0390eca8028b.webp" "width="120" height="120"> </p>
+<p align="center">
+$\color{#ffbfd3}{“~とめどなく溢れる~「会いたい」}$
+$\color{#ffbfd3}{気持ち~なんでだろうな~まだわかんないな~”}$ <br />
+$\color{#ffcbbf}{╭──────~·~·~୨୧~·~·~──────╮}$<br /> 
+  <br />
+<img src="https://file.garden/Zlo7whFY2AfQROME/5677bc49.gif" "width="60" height="60"> <br />
+<p align="center">
+$\color{#ffcbbf}{╰──────~·~·~୨୧~·~·~──────╯}$<br />
+$\color{#ffbfd3}{“~明日も明後日もその先も}$<br />
+$\color{#ffbfd3}{僕はずっと~ずっと待ち続けるんだろうな~”}$<br />
+  <br />
+<img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_296253072537042.jpg""width="40" height="40"> </p>
+  <p align="center">
+ <sub> $\color{#ffcbbf}{࿐~~`~`~~Block~~If~~You~~Want~~.~~`~`~~૮₍´｡ᵔ~ꈊ~ᵔ｡`₎ა}$</sub>
+
