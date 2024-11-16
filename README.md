@@ -3,7 +3,7 @@
 extendAnas/extendAnas is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-![^_____^](https://github.com/user-attachments/assets/f36a527b-8295-4028-a73d-83bb2226bf60)
+![wc](https://github.com/user-attachments/assets/9a9a5aa4-f1ea-4cdc-a474-5821f7ebaf20)
 
 
 
